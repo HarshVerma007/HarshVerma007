@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1wdST_-V61aPaz-LPg0VoFI-AXbs5ep08/view?usp=sharing](https://drive.google.com/file/d/1wdST_-V61aPaz-LPg0VoFI-AXbs5ep08/view?usp=sharing)
 
-- ⚡ Fun fact **but developers keep Computers are fast them slow.**
+- ⚡ Fun fact ** Computers are fast but developers keep them slow.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
